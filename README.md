@@ -1,5 +1,6 @@
 
-![d4p7b49-1dfbd61b-66b3-48b4-81c1-cb1b65213dc8](https://github.com/user-attachments/assets/4a233e19-0343-4e19-a90c-37f46502985d)
+![d4p7b49-1dfbd61b-66b3-48b4-81c1-cb1b65213dc8](https://github.com/user-attachments/assets/4a233e19-0343-4e19-a90c-37f46502985d) ![](https://komarev.com/ghpvc/?username=INUZUKA-KIBA)
+
 
 <img width="1440" height="1076" alt="R" src="https://github.com/user-attachments/assets/2a6eb131-a042-4814-bd49-92e71bf89b9c" />
 
