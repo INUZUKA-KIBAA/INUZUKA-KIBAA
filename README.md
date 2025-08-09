@@ -46,6 +46,9 @@ heres some KIBA GIFS HAH
 
 
 thats a joke btw ok) and ye im lazy to add more
+<img width="1025" height="367" alt="image" src="https://github.com/user-attachments/assets/befad0bb-7fda-4028-9f34-4b7ee54e89a2" />
+NO LEV. IT DOESNT
+
 
 
 
